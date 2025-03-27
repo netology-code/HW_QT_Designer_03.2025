@@ -1,0 +1,1 @@
+# HW_QT_Designer_03.2025
